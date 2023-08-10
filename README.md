@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **programming, consulting, mentorship or anything interesting. Open for discussions.**
 
-- 📫 How to reach me **xeyalbinnetov@gmail.com**
+- 📫 How to reach me **xeyalbinnetov02@gmail.com**
 
 - 🤩 Hobbies [Playing the guitar🎶,Sport🏋️, Adrenaline 🧗‍♀️](Playing the guitar🎶,Sport🏋️, Adrenaline 🧗‍♀️)
 

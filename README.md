@@ -5,13 +5,13 @@
 
 - 🔭Working at: **Professional IT**
 
-- 💬 Ask me about **programming, consulting, mentorship or anything interesting. Open for discussions.**
+- 💬 Ask me about: **programming, consulting, mentorship or anything interesting. Open for discussions.**
 
-- 📫 How to reach me **xeyalbinnetov02@gmail.com**
+- 📫 How to reach me: **xeyalbinnetov02@gmail.com**
 
-- 🤩 Hobbies [Playing the guitar🎶,Sport🏋️, Adrenaline 🧗‍♀️](Playing the guitar🎶,Sport🏋️, Adrenaline 🧗‍♀️)
+- 🤩 Hobbies: Playing the guitar🎶,Sport🏋️, Adrenaline 🧗‍♀️
 
-- ⚡ Fun fact **I'm Funny**
+- ⚡ Fun fact: **I'm Funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
